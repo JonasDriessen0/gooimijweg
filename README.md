@@ -1,9 +1,11 @@
 # gooimijweg
 
-doe een omschrijving
+wow dit is erg #funny
 
-## dit is in de klas toegevoegd
+## hier zie je een paar orginele dingen
 
-I HATE LIBERALS
+mediacollege is een leuke school
 
-![afbeelding](https://thumbs.dreamstime.com/z/man-shouting-covering-his-ears-handsome-young-51152360.jpg)
+![afbeelding](https://media.istockphoto.com/vectors/thumb-up-emoticon-vector-id157030584?s=612x612)
+
+[hoer is de website van school](https://welkombijma.nl/)
